@@ -16,7 +16,9 @@
 ![](https://github-profile-trophy.vercel.app/?username=debchandrilroy&theme=date_night&no-frame=false&no-bg=true&margin-w=4)
 
 <hr>
-### ✍️ कर्मण्येवाधिकारस्ते मा फलेषु कदाचन । मा कर्मफलहेतुर्भूर्मा ते सङ्गोऽस्त्वकर्मणि ॥
+✍️ कर्मण्येवाधिकारस्ते मा फलेषु कदाचन ।<br>मा कर्मफलहेतुर्भूर्मा ते सङ्गोऽस्त्वकर्मणि ॥<br>
+                        -Shri Krishna
+                            
 
 ---
 [![](https://visitcount.itsvg.in/api?id=debchandrilroy&icon=1&color=0)](https://visitcount.itsvg.in)
